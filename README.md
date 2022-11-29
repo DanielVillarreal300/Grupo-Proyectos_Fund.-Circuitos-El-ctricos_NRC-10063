@@ -1,1 +1,0 @@
-# Grupo-Proyectos_Fund.-Circuitos-El-ctricos_NRC-10063
